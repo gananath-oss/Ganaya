@@ -1,1 +1,1 @@
-# Ganaya
+# Gananath Athukorala
